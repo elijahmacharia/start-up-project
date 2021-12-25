@@ -1,1 +1,1 @@
-# start-up-project
+https://elijahmacharia.github.io/start-up-project/
